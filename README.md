@@ -10,7 +10,7 @@
 * Practicing my data structures and algorithms
 
 ### 🌱 I’m currently learning
-* The fundamentals of machine leanring and data science
+* The fundamentals of machine learning and data science
 * How Redux works in React
 
 ### 📫 How to reach me
