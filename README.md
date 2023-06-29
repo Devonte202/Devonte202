@@ -5,5 +5,5 @@
 * __LinkedIn:__ [@devonte-g-duncan](https://www.linkedin.com/in/devonte-g-duncan-85ba96124/)
 * __Medium Blog:__ [@devonteduncan202](https://medium.com/@devonteduncan202)
 
-#### 🕺🏾  Fun fact: I'm also a dancer, check me out on [YouTube](https://www.youtube.com/channel/UCyERD2bXbcFSq8rqkvN8UkA)
+#### Fun fact: I'm also a YouTuber, check me out on [YouTube](https://www.youtube.com/channel/UCv_fZCW390czCcFbIgU7nLg)
 
